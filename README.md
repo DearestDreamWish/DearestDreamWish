@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning cyber technology.
 - 💞️ I’m looking to collaborate on everything.
 - 📫 How to reach me invulnerableimmortal@gmail.com
+- Support me: https://paypal.me/DearestDreamWish?country.x=DK&locale.x=da_DK
