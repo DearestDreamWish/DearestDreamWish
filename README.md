@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DearestDreamWish
-- 👀 I’m interested in every cyber war.
+- 👀 I’m interested in every cyber war. Tip: info.warfare.space@gmail.com
 - 🌱 I’m currently learning cyber technology.
 - 💞️ I’m looking to collaborate on everything.
 - 📫 How to reach me invulnerableimmortal@gmail.com
