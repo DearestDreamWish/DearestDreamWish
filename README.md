@@ -1,8 +1,8 @@
-Please do buy me a physical book from my wishlist repo.
-
-Contact me: whatisthepoll@gmail.com
+0. Please do buy me a physical book from my wishlist repo.
+1. Contact me: whatisthepoll@gmail.com
 
 Name: Kadel Saleh
+
 Address(apartment): Murskeen 28, 411
 
 City: Taastrup
