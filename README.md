@@ -7,4 +7,3 @@
 6. Country: Denmark
 7. Feel free to contact me and after my response visit me.
 8. We can always start a friendship or a co-operation for something.
-9. Marital relationship or something similar won't happen.
